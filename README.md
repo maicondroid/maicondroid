@@ -16,14 +16,14 @@ Mais conhecido como **maicondroid**, sou **programador** com experiência em des
 ## 📌 Bio Oficial
 Acesse meu link com **todas as redes sociais**, **contato comercial** e **portfólio**:
 
-👉 **[BIO LINK - Clique aqui](https://linktr.ee/maicondroid](https://biolinks.maicondroidoficial.com/MD))**
+👉 **[BIO LINK - Clique aqui](https://biolinks.maicondroidoficial.com/MD)**
 
 ---
 
 ## 📫 Como me encontrar
 - 🌐 Site: [maicondroidoficial.com](https://maicondroidoficial.com)
-- 📧 E-mail comercial: **contato@maicondroidoficial.com**
-- 📱 Redes sociais e portfólio completo: [linktr.ee/maicondroid]([https://linktr.ee/maicondroid](https://www.instagram.com/maicondroidoficial_/))
+- 📧 E-mail comercial: **maiconsur@gmail.com**
+- 📱 Instagram: [@maicondroidoficial_](https://www.instagram.com/maicondroidoficial_/)
 
 ---
 
